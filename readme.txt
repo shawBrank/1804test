@@ -1,1 +1,1 @@
-what a nice day today!
+what a bad day today!
